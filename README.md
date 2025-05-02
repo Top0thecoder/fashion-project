@@ -1,1 +1,1 @@
-# faishon-project-i-dont-wanna-do
+fashion project for French Class
